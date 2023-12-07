@@ -1,1 +1,2 @@
 - 👋 Hi, I’m Kübra İnci
+- Contact me :https://www.linkedin.com/in/k%C3%BCbra-inci-1386a3298/
